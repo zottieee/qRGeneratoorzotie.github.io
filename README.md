@@ -1,0 +1,1 @@
+# qRGeneratoorzotie.github.io
